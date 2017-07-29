@@ -1,9 +1,8 @@
-# oaakx-expansions
-**What does o-a-a-k-x stand for?**
+# What does o-a-a-k-x stand for?
 
-Maybe one/none of these:
+One or none of these:
 * oh accidentally assassinated kunt's x-wifes
-* ???
+* ohohohoho ay ashyr kelle x
 
 ---
 
